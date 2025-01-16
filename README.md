@@ -1,3 +1,5 @@
+# <a href="https://bit.ly/casmx">¡HAZ CLIC Y RECLAMA TU BONO!</a>
+
 # Strendus Casino México 2025: La Nueva Era de Entretenimiento Digital y Apuestas Deportivas
 
 Descubre el futuro del entretenimiento digital con Strendus, la plataforma mexicana que revoluciona la experiencia de apuestas deportivas y casino en línea. Con tecnología de vanguardia y un enfoque único en el mercado latino, Strendus redefine los estándares de diversión y seguridad para 2025.
