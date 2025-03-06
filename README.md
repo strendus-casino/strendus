@@ -34,7 +34,7 @@ Strendus: El Orgullo del Entretenimiento Digital Mexicano - Tu Casa de Apuestas 
 
 strendus
 
-strendus casino
+<a href="https://strenduscasino-mx.mx">strendus casino</a>
 
 strendus slots
 
